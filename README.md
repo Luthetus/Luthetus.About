@@ -3,6 +3,7 @@
 ## Table of Contents
 - Background Information
 - Existential Dread
+- Music
 
 ---
 
@@ -85,3 +86,9 @@ I find myself pursuing a "psychologically rich life". That is to say, a life cha
 While working on the ["Luthetus.Ide" (github)](https://github.com/Luthetus/Luthetus.Ide) I believe I've found exactly that.
 
 I thought I was a good programmer until I started writing ["Luthetus.Ide" (github)](https://github.com/Luthetus/Luthetus.Ide). The extent of what I do not understand is awe inspiring. I look forward to everyday, because there is a vast amount I want to explore. The struggle of learning a concept you do not understand, the anticipation as you begin to understand, the great satisfaction of then getting your code to work. I live for this.
+
+---
+
+## Music
+
+[Falling In Reverse - "The Drug In Me Is Reimagined"](https://youtu.be/B2cbhYihBWY?si=B4xwLK_CtsY9G98G)
