@@ -92,3 +92,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 ## Music
 
 [Falling In Reverse - "The Drug In Me Is Reimagined"](https://youtu.be/B2cbhYihBWY?si=B4xwLK_CtsY9G98G)
+[DREARINESS - Essence (subtitulado)](https://youtu.be/tz6ptvVnnXo?si=Y2ck3Se1PWngYAgu)
