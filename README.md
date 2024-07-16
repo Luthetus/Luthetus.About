@@ -94,3 +94,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 - [Falling In Reverse - "The Drug In Me Is Reimagined"](https://youtu.be/B2cbhYihBWY?si=B4xwLK_CtsY9G98G)
 - [DREARINESS - Essence (subtitulado)](https://youtu.be/tz6ptvVnnXo?si=Y2ck3Se1PWngYAgu)
 - [Dreariness - Starless Night](https://youtu.be/Yx3uJX9iO68?si=ys_lIu4lHYNuqpxD)
+- [Psychonaut 4 - His Right to Remain Silent](https://youtu.be/dHcrT7IB84Y?si=wzjEAaKa6ok6n5u0)
