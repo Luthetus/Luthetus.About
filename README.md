@@ -98,3 +98,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 - [Gris - Veux-tu Danser?](https://youtu.be/CkKUm1ExJe0?si=8adTLZUG9vLHrCc3)
 - [Radiohead "How To Disappear Completely" Original Music Video by David Herrera](https://youtu.be/nZq_jeYsbTs?si=CvUWHw7I0o9AcQru)
 - [My Heart (Acoustic) - Paramore (Live at FBR15)](https://youtu.be/CuserAGAxtM?si=jE0nRBXw3eMwAokO)
+- [Grimes - Idoru (Slightly Longer Version)](https://youtu.be/oCrhTU9HkVQ?si=3OYCjAIb_8S6mEac)
