@@ -100,3 +100,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 - [My Heart (Acoustic) - Paramore (Live at FBR15)](https://youtu.be/CuserAGAxtM?si=jE0nRBXw3eMwAokO)
 - [Grimes - Idoru (Slightly Longer Version)](https://youtu.be/oCrhTU9HkVQ?si=3OYCjAIb_8S6mEac)
 - [Blade and Bath - Eternal Nothingness (Sub. English)](https://youtu.be/1NBKskAvam8?si=bo-mAg2qMNh9NQcy)
+- [APATI - Kemisk Karlek (subtitulado)](https://youtu.be/r5tZC9BOQS4?si=0jXMVIqgwnilu4a6)
