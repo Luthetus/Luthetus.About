@@ -99,3 +99,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 - [Radiohead "How To Disappear Completely" Original Music Video by David Herrera](https://youtu.be/nZq_jeYsbTs?si=CvUWHw7I0o9AcQru)
 - [My Heart (Acoustic) - Paramore (Live at FBR15)](https://youtu.be/CuserAGAxtM?si=jE0nRBXw3eMwAokO)
 - [Grimes - Idoru (Slightly Longer Version)](https://youtu.be/oCrhTU9HkVQ?si=3OYCjAIb_8S6mEac)
+- [Blade and Bath - Eternal Nothingness (Sub. English)](https://youtu.be/1NBKskAvam8?si=bo-mAg2qMNh9NQcy)
