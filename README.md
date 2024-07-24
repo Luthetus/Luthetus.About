@@ -103,3 +103,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 - [APATI - Kemisk Karlek (subtitulado)](https://youtu.be/r5tZC9BOQS4?si=0jXMVIqgwnilu4a6)
 - [Crystal Castles - Kept (Waltz piano)](https://youtu.be/KpF1RzgSl0c?si=UhCDDVKTYZl1F7Qa)
 - [Crystal Castles - Kept (AGTHA REMIX)](https://youtu.be/S30XdiTDINc?si=9ZzhCo3m4hqRPCRv)
+- [bedroom - in my head.](https://youtu.be/jWfoyg6z3Dw?si=mpO67_2pl8sCX94N)
