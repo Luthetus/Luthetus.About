@@ -104,5 +104,4 @@ I thought I was a good programmer until I started writing ["Luthetus.Ide" (githu
 - [Crystal Castles - Kept (Waltz piano)](https://youtu.be/KpF1RzgSl0c?si=UhCDDVKTYZl1F7Qa)
 - [Crystal Castles - Kept (AGTHA REMIX)](https://youtu.be/S30XdiTDINc?si=9ZzhCo3m4hqRPCRv)
 - [bedroom - in my head.](https://youtu.be/jWfoyg6z3Dw?si=mpO67_2pl8sCX94N)
-- [VØJ, Narvent - Memory Reboot (4K Music Video)](https://youtu.be/wL8DVHuWI7Y?si=rXCnanY57aahw6kt)
-- [Porter Robinson - Secret Sky Set (2020)](https://youtu.be/4KGsgpFiswQ?si=igmaQJpqZPF042hh)
+- [Porter Robinson - Look at the Sky (Official Music Video)](https://youtu.be/TJBh_hj6DzE?si=xyxq8lNVS5y9Cs5U)
